@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-I am currently a student at BYU pursuing a degree in Statistics with an emphasis in apllied statistics and analytics.
+I am currently a student at BYU pursuing a degree in Statistics with an emphasis in applied statistics and analytics.
 
 I've been enrolled since January 2023 and will graduate April 2027.
 
